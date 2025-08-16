@@ -1,6 +1,6 @@
 ## README
 
-Click [here](https://mega.nz/fm/TgJAyb5D) to jump to obtain the system image.
+Click [here](https://mega.nz/folder/bxoVxChZ#9kdpfZ5LPvwp9rwQ11Dm6Q) to jump to obtain the system image.
 
 
 
